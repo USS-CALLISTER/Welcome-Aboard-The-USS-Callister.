@@ -1,5 +1,5 @@
 # __Welcome-Aboard-The-USS-Callister.__
-Why is this here? Because you could say it's important.*
+Why is this here? Because you could say it's important.
 <img width="1420" height="634" alt="image" src="https://github.com/user-attachments/assets/b9b8e50b-3f5f-4a3e-b856-28cdb2c8baf4" />
 ``I am not one for Do Not Interact lists since they are pointless but due to some recent occurances I will be making one.``    
 <img width="532" height="24" alt="image" src="https://github.com/user-attachments/assets/acd34c6a-0143-464f-a7d6-3c1f5ea5d26c" />     
